@@ -22,4 +22,9 @@ Pictures of garage doors we have installed:
 ### Career Path
 I am currently enrolled in the engineering school and working towards a BS in informational technology and am hoping to persue a minor in finance or management.
 
-After spending a handful of semesters as a part time student due to covid, I am once again fully enrolled in courses. With the additional summer classes that I will be taking, I expect to graduate spring of 2023.
+After spending a handful of semesters as a part time student due to COVID-19, I am once again fully enrolled in courses. With the additional summer classes that I will be taking, I expect to graduate spring of 2023.
+
+#### Personal
+Travel is a hobby I try tp participate most in. While I have not done any major travel since COVID-19, I grequent back home to Illinios and spend some weekends in St. Louis.
+
+I grew up skate boarding and snowboarding and I have gotten the oppertunity to surf. I skate the most just because I do not live in an environment that allows oppertunity for the other two activities. I would have to say my favorite out of the three is surfing tho.
