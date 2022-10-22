@@ -21,3 +21,5 @@ Pictures of garage doors we have installed:
 
 ### Career Path
 I am currently enrolled in the engineering school and working towards a BS in informational technology and am hoping to persue a minor in finance or management.
+
+After spending a handful of semesters as a part time student due to covid, I am once again fully enrolled in courses. With the additional summer classes that I will be taking, I expect to graduate spring of 2023.
