@@ -17,3 +17,7 @@ Pictures of garage doors we have installed:
 ![image](https://user-images.githubusercontent.com/116392196/197315114-d65a7eec-cd8f-4105-becf-b7c7e31900bd.png)
 ![image](https://user-images.githubusercontent.com/116392196/197315212-917c4925-1f3f-417e-b711-2dfc1cd808a3.png)
 
+>After my time at Mizzou I plan to move back home with the knowledge i'll have obtained to further improve our productivity and find ways to incoorperate new technology into the company.
+
+### Career Path
+I am currently enrolled in the engineering school and working towards a BS in informational technology and am hoping to persue a minor in finance or management.
