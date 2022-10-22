@@ -10,7 +10,7 @@
 *   Residential techician for **Allied Garage Door**
 
 ### [Allied Garage Door](https://allieddoor.com/).
-In 1982, my grandpa _Larry Paris_ had began to put a company in motion that is now providing commercial and residential garage door services to the Chicaagoland area 40 years later. We have stayed a family owned, private company since our creation. My mom and uncle had started working for my gramdpa as young adult, and when I turned 18, I followed in the family footsteps and took on a role as a full time employee in our current warehouse. From there I recieved proffesional training and went on to be a residential techician. I install 8 to 12 garage doors in a full work week and have overseen a 60 garage door project at an apartment complex in Aurora, IL. 
+In **1982**, my grandpa _Larry Paris_ had began to put a company in motion that is now providing commercial and residential garage door services to the Chicaagoland area 40 years later. We have stayed a family owned, private company since our creation. My mom and uncle had started working for my gramdpa as young adult, and when I turned 18, I followed in the family footsteps and took on a role as a full time employee in our current warehouse. From there I recieved proffesional training and went on to be a residential techician. I install 8 to 12 garage doors in a full work week and have overseen a 60 garage door project at an apartment complex in Aurora, IL. 
 
 Pictures of garage doors we have installed:
 ![alt text](https://user-images.githubusercontent.com/116392196/197316447-8865d82e-792b-4d14-b816-4c9714cb7693.png) 
